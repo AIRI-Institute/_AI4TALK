@@ -1,1 +1,1 @@
-# AI4TALK
+# Hidden until the competition starts
